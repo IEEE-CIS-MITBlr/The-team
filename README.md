@@ -6,3 +6,5 @@ Arnav Upadhyay was here
 Akshat G was here
 
 Atharva Lotlikar was here
+
+Manas Waykole was here
